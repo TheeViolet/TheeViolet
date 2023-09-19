@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheeViolet
--     I’m interested in Video Games ONLY!!!!!!!!!
+-     I’m interested in I dont know
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on NOTHING!!!!!
 - 📫 How to reach me You Cant
