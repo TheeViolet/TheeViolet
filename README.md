@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TheeViolet
--     I’m interested in I dont know
+-     I’m interested in VOTING FOR THE ARMADILLO IN MINECRAFT!!!!!!!!!!!!!
 - 🌱 I’m currently learning Coding
-- 💞️ I’m looking to collaborate on NOTHING!!!!!
+- 💞️ I’m looking to collaborate on VOTING FOR THE MINECRAFT ARMADILLO!!!!
 - 📫 How to reach me You Cant
 
 <!---
