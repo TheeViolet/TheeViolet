@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @TheeViolet
--     I’m interested in VOTING FOR THE ARMADILLO IN MINECRAFT!!!!!!!!!!!!!
-- 🌱 I’m currently learning Coding
-- 💞️ I’m looking to collaborate on VOTING FOR THE MINECRAFT ARMADILLO!!!!
-- 📫 How to reach me You Cant
+Hello! I am TheeViolet, and I am interested in video games, occasional soccer, and FIRST robotics. I play Fortnite, Rocket League, some Pokemon games, Geometry Dash, and Minecraft(rarely). My favorite animals are my 2 dogs, Emery and Norah, and I am most of the time available. (Also, thank goodness the armadillo won the mob vote for Minecraft, Woohoo!) Thanks 4 stopping by!
 
 <!---
 TheeViolet/TheeViolet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
