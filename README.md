@@ -1,4 +1,4 @@
-Please refrain from asking what my bio is
+tfw when you when your lid when uhh angle your lid sensor
 <!---
 TheeViolet/TheeViolet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
